@@ -6,7 +6,7 @@
 - 📱 07 81 26 37 26
 - En résumé : Web Expert / Google Certified Partner 🎓 / Digital Master | SEO | SEA | CRO |📚 Multiple degrees 🎓 | HR |Digital Marketer |Search Engine Optimization 🔍 | Marketing Automation ⚡️ | Head of digital marketing 🎯 | LION 🦁
 
-<!---
+-En détails :
 ►Head of digital marketing / Web Expert / chef de projet web / stratégiste en marketing digital / chef de projet digital / responsable marketing digital Webmaster spécialiste du webmarketing, Growth hacker, Social media manager / community manager, marketing automation, Expert en SEA Search Engine Advertising/Marketing) et passionné du web #natural #leader
 De nombreuses années d'expériences au compteur et déjà actif sur l'univers du digital quand j'étais étudiant
 ►Certifié par Google, Facebook, Microsoft. the USIP (United States Institute of Peace), Inbound Marketing et Google Educator & MULTI-diplômé (Plusieurs Masters : RH, Digital Marketing, Communication & Marketing)
@@ -20,4 +20,6 @@ De nombreuses années d'expériences au compteur et déjà actif sur l'univers d
 ►Expérience en agence et chez des clients finaux (contrairement à d'autres profils qui n'ont pas vu les 2 côtés)
 
 ►Expert et dynamique, j'ai déjà travaillé en tant que webmaster, webmarketer, community manager, chef de projet web, CRO, directeur marketing digital. Avec une vision à 360 degrés des métiers du web: en passant par le référencement classique (SEO) & le référencement payant (SEA), mais aussi par le travail de l'éditorial (aspects textuels et graphiques), de la communication et du marketing
+<!---
+
 --->
