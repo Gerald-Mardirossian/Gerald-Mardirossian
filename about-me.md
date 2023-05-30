@@ -25,3 +25,4 @@ De nombreuses années d'expériences au compteur et déjà actif sur l'univers d
 --->
 
 <img src="https://pbs.twimg.com/media/FxX2PDXXgAE5pY8?format=jpg&name=4096x4096">
+<img src="https://pbs.twimg.com/media/FxX2ScgXsAIjAio?format=jpg&name=4096x4096">
