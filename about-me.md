@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Gerald-Mardirossian
-- 👀 I’m interested in digital
-- 🌱 I’m currently learning digital
-- 💞️ I’m looking to collaborate on digital
+- 👀 I’m interested in digital marketing
+- 🌱 I always keep learning digital marketing
+- 💞️ I’m looking to collaborate on digital marketing projects
 - 📫 geraldmardirossian[at]gmail.com
 - 📱 07 81 26 37 26
 - En résumé : Web Expert / Google Certified Partner 🎓 / Digital Master | SEO | SEA | CRO |📚 Multiple degrees 🎓 | HR |Digital Marketer |Search Engine Optimization 🔍 | Marketing Automation ⚡️ | Head of digital marketing 🎯 | LION 🦁
