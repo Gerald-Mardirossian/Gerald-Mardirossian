@@ -24,4 +24,4 @@ De nombreuses années d'expériences au compteur et déjà actif sur l'univers d
 
 --->
 
-![Preview]([[https://raw.githubusercontent.com/username/project/master/image-path/image.png](https://pbs.twimg.com/media/FxX2PDXXgAE5pY8?format=jpg)]())
+![](images/ss_apps.png) 
