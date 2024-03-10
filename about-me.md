@@ -20,7 +20,11 @@ De nombreuses années d'expériences au compteur et déjà actif sur l'univers d
 ►Expérience en agence et chez des clients finaux (contrairement à d'autres profils qui n'ont pas vu les 2 côtés)
 
 ►Expert et dynamique, j'ai déjà travaillé en tant que webmaster, webmarketer, community manager, chef de projet web, CRO, directeur marketing digital. Avec une vision à 360 degrés des métiers du web: en passant par le référencement classique (SEO) & le référencement payant (SEA), mais aussi par le travail de l'éditorial (aspects textuels et graphiques), de la communication et du marketing
+
 vous pouvez aussi me confier vos campagnes Google Ads à gérer : <a href="https://google-ads.virtueltime.com/">Agence Google Ads Paris</a>
+vous pouvez aussi me confier vos Google Street View pour booster votre fiche Google My Business : <a href="https://www.virtueltime.com/">Photo Google Street View et marketing digital</a>
+
+
 <!---
 
 --->
